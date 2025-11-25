@@ -1,0 +1,9 @@
+# Listening Journal III - SEIII
+
+![image-20251110180613697](./assets/image-20251110180613697.png)
+
+![image-20251110180620203](./assets/image-20251110180620203.png)
+
+![image-20251110180625935](./assets/image-20251110180625935.png)
+
+![image-20251110180637187](./assets/image-20251110180637187.png)
