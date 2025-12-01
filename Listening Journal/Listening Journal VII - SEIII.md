@@ -2,17 +2,17 @@
 
 ## Title
 
-**The Coldest Village on Earth: Oymyakon (-71°C, -96°F)**
+**Is Trump about to start a new war in Venezuela?**
 
-![image-20251116141111523](./assets/image-20251116141111523.png)
+![image-20251201105816870](./assets/image-20251201105816870.png)
 
 ## URL
 
-https://www.youtube.com/watch?v=2C8zYFArnKY
+https://www.youtube.com/watch?v=WZVvCuo63Bw
 
 ## Summary
 
-This video showcased the extremely cold environment of Oymyakon in Yakutia, the coldest permanently inhabited settlement on Earth. In which the temperature can drop below -50°C with an unofficial regional low to -71°C. What's more, the life here is also specialized. For instance, the car must keep in heated in garages of running to avoid freezing. The video emphasized how the residents endure the strict environment.
+This video explains the continuous rising tension between the United States and Venezuela. It showcased the message that posted on social media by President Trump, which says airlines and pilots should treat Venezuelan airspace as 'closed in its entirety'. This signal also represents a higher pressure on President Nicolás Maduro. And the video clarifies the multiple risks: miscalculation, legal limits, regional fallout, etc. 
 
 ## Vocabulary
 
