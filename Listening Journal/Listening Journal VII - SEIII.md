@@ -16,24 +16,24 @@ This video explains the continuous rising tension between the United States and 
 
 ## Vocabulary
 
-### Permafrost
+### Escalation
 
-n. Permanently frozen ground that stays below 0°C for years.
+n. A rise in tension or conflict step by step.
 
-e.g.: Many homes in Oymyakon are built on piles to protect the permafrost beneath them.
+e.g.: Closing airspace can lead to escalation if both sides react strongly.
 
-### Frostbite
+### Sanctions
 
-n. Injury caused by freezing of skin and underlying tissues.
+n.pl. Official limits or bans to punish a government.
 
-e.g.: At −50°C, exposed fingers can develop frostbite in minutes.
+e.g.: The U.S. may add sanctions to increase pressure.
 
-### Insulation
+### Regime change
 
-n. Material that slows heat loss.
+phrn. Forcing or pushing a government to be replaced.
 
-e.g.: Thick boots and fur-lined jackets provide crucial insulation during outdoor chores.
+e.g.: Critics say the policy could aim at regime change.
 
 ## Reflection
 
-I chose this video since it's extremely interesting and attractive. It explained what to wear, when to drive, even how to breathe in this strict environment in detail. And seeing breath becoming glittering crystals made the science reachable. Plus, I obtained that in that place, the  official lowest temperature record is −67.7°C and the unofficial is -71°C. The totally different living style really astonished me, that we shall never underestimate the power of nature.
+I chose this video since it explains a serious issue in simple words, like the 'airspace closed', which is easy to understand but with strong effects. Which is to say, all the events that relevant to the airline will be closed. What's more, I also learned that a simple post can even change that lots of circumstances and affect multiple aspects. Nevertheless, hope the two sides can avoid a large conflict eventually.
